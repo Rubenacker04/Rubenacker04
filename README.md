@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Michael
-- 👀 I’m interested in game development & 
+- 👀 I’m interested in game development & cyber security
 - 🌱 I’m currently learning at Iowa State University
 - 💞️ I’m looking to collaborate on absolutely nothing (unless its really cool then let me know)
 - 📫 How to reach me ... don't
